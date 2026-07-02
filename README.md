@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Coding, Music & Anime
 - 🌱 I’m currently learning ... Fullstack Web Development
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... Instagram: @bhavin_2109
+- 📫 How to reach me ... Instagram: @bhaaviinn
 - 😄 Pronouns: ... Bhavin...
 - ⚡ Fun fact: ... I'm a Nerd
 
